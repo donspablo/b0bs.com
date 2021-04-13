@@ -1,2 +1,2 @@
-# b0bs.com
-"bobs.com - Jamaican slang for police. It's derived from the word Babylon. But thats old fashion now. It is now BOBS.  The 'S' is sounded like a 'Z' so in pronouncing you would say 'bobz'."
+# Boobs.com
+Boobs.com A writer without a crew. Now it's just a way of saying you are the first one with that name. Almost everyone puts "one" or "Boobs" after their name, hence the meaning of it is slowly losing importance in the graffiti world.
